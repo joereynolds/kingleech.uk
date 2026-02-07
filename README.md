@@ -5,6 +5,6 @@ King Leech is:
 - Ben (Bass)
 - Lewis (Drums)
 
-[Instagram](https://www.instagram.com/kingleech)
+[Instagram](https://www.instagram.com/kingleechofficial)
 
 No upcoming shows.
